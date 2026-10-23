@@ -1,3 +1,16 @@
 # Mi receta
 
-Nombre del plato: ....
+Nombre del plato: Hyper Perro
+
+Ingredientes:
+
+- Pan
+- Doble Salchicha
+- Tocineta
+- Queso
+- Papas
+- Salsas
+- Chicharron
+- Cebolla
+- Huevo codorniz
+- Butifarra
