@@ -14,3 +14,5 @@ Ingredientes:
 - Cebolla
 - Huevo codorniz
 - Butifarra
+
+Tiempo de preparacion: 10 min
