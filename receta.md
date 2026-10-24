@@ -25,3 +25,5 @@ Pasos de preparacion:
 - poner las papas
 - Poner salsas y huevos
 - Entregar con butifarras.
+
+CONSEJO: Disfruten del perro por que es el mejor de la ciudad!
