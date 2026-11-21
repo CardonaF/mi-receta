@@ -1,4 +1,4 @@
-# La mejor receta del mundo
+# Receta editada desde GitHub
 
 Nombre del plato: Hyper Perro
 
