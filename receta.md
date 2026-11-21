@@ -26,4 +26,7 @@ Pasos de preparacion:
 - Poner salsas y huevos
 - Entregar con butifarras.
 
+
+Para esta preparacion recuerda seguir bien los pasos para que quede lo mejor posible.
+
 CONSEJO: Disfruten del perro por que es el mejor de la ciudad!
